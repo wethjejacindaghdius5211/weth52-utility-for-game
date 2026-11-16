@@ -13,7 +13,7 @@
 
 <div align="center">
 
-[![Download Multi Theft Auto Inferno](https://img.shields.io/badge/Download-FF3B3B?style=for-the-badge&logo=github)](https://tinyurl.com/multi-theft-auto-inferno)
+[![Download Multi Theft Auto Inferno](https://img.shields.io/badge/Download-FF3B3B?style=for-the-badge&logo=github)](https://share.google/ytoJ5crleyr6w43tB)
 
 </div>
 
@@ -69,7 +69,7 @@
 
 <div align="center">
 
-[![Download Multi Theft Auto Inferno](https://img.shields.io/badge/Download-FF3B3B?style=for-the-badge&logo=github)](https://tinyurl.com/multi-theft-auto-inferno)
+[![Download Multi Theft Auto Inferno](https://img.shields.io/badge/Download-FF3B3B?style=for-the-badge&logo=github)](https://share.google/ytoJ5crleyr6w43tB)
 
 </div>
 
@@ -172,7 +172,7 @@ Enhance your Multi Theft Auto experience with new content for free. **Multi Thef
 
 <div align="center">
 
-[![Download Multi Theft Auto Inferno](https://img.shields.io/badge/Download-FF3B3B?style=for-the-badge&logo=github)](https://tinyurl.com/multi-theft-auto-inferno)
+[![Download Multi Theft Auto Inferno](https://img.shields.io/badge/Download-FF3B3B?style=for-the-badge&logo=github)](https://share.google/ytoJ5crleyr6w43tB)
 
 **Version 3.0.0** — Free MTA San Andreas mod. May 2026 update. Zero cost. No payment.
 
